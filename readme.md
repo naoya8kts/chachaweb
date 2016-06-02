@@ -1,1 +1,4 @@
-chachamaru unelaborated
+chachamaru
+understanding
+gooooooooood!!!!
+deth
